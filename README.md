@@ -1,1 +1,1 @@
-my 2 time to update  READMe now
+Readme be kind to me 
